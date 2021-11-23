@@ -5,4 +5,4 @@ Uma comparação de dados de opinião pública entre brasileiros e poloneses ant
 
 https://youtu.be/yZo351qT4xE
 
-Quando constar a versão pré-print postarei aqui
+Versão Pré-Print 
